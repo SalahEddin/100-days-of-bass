@@ -15,3 +15,6 @@ Still keeping at it; BJ and AOBTD. Plus learned the tabs for Nirvana's Come as y
 
 ## Day 005:
 Added Sunshine of your love by CREAM and practiced previous riffs I learned, I tried playing with a beat on 80Hz and I'm too slow still for this.
+
+## Day 006:
+Practicing previous riffs, but trying to look at my plucking hand instead of the fretting hand as this helps me withvisualising my timing 
