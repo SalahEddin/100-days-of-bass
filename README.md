@@ -18,3 +18,6 @@ Added Sunshine of your love by CREAM and practiced previous riffs I learned, I t
 
 ## Day 006:
 Practicing previous riffs, but trying to look at my plucking hand instead of the fretting hand as this helps me withvisualising my timing 
+
+## Day 007:
+Previous riffs, plus learning about playing root, octaves, fifths and sevenths to back a song.
