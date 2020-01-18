@@ -21,3 +21,6 @@ Practicing previous riffs, but trying to look at my plucking hand instead of the
 
 ## Day 007:
 Previous riffs, plus learning about playing root, octaves, fifths and sevenths to back a song.
+
+## Day 008:
+I can play all of the previous riffs with a backing track (not full speed yet), and practiced the octave and the Disco Riff (4 successive octaves). 
