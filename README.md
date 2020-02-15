@@ -30,3 +30,16 @@ Practicing the octave intervals.
 
 ## Day 010:
 Read about music theory, and followed some video explanations. No bass was played. 
+
+
+## Day 011:
+First Jam with Eduardo, practiced Seven Nation Army
+
+
+## Day 012:
+Jammed with Pim and Simon, learned more about rythm and what I can do to improve it.
+
+[Resource to improve my rythm](http://rubycliff.com/TheoryManual/LearnRhythm.html)
+
+## Day 013:
+Practiced my rythm for songs I knew. 
