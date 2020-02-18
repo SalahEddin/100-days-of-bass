@@ -43,3 +43,6 @@ Jammed with Pim and Simon, learned more about rythm and what I can do to improve
 
 ## Day 013:
 Practiced my rythm for songs I knew. 
+
+## Day 014:
+Learned to read music sheets, practiced rythm with tapping and counting while plucking on the 2nd quarters etc.
