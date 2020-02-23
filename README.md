@@ -46,3 +46,6 @@ Practiced my rythm for songs I knew.
 
 ## Day 014:
 Learned to read music sheets, practiced rythm with tapping and counting while plucking on the 2nd quarters etc.
+
+## Day 015:
+Blues Scale basic shape.
