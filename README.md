@@ -49,3 +49,6 @@ Learned to read music sheets, practiced rythm with tapping and counting while pl
 
 ## Day 015:
 Blues Scale basic shape.
+
+## Day 016:
+Practiced the Blues Scale with different root notes.
