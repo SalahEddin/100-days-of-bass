@@ -52,3 +52,6 @@ Blues Scale basic shape.
 
 ## Day 016:
 Practiced the Blues Scale with different root notes.
+
+## Day 017:
+Practiced Pink Panther theme and previously learned songs.
