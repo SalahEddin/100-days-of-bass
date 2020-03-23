@@ -55,3 +55,11 @@ Practiced the Blues Scale with different root notes.
 
 ## Day 017:
 Practiced Pink Panther theme and previously learned songs.
+
+<audio controls>
+  <source src="PinkPanther_2020-03-23.mp4" type="audio/mpeg">
+</audio>
+
+<video controls>
+  <source src="PinkPanther_2020-03-23.mp4" type="video/mp4">
+</video>
